@@ -6,4 +6,4 @@
 - 🤔 I’m looking for help with data cleaning, data scraping
 - 💬 Ask me about data analytics
 - 📫 How to reach me: gujaratipritesh8@gmail.com
-- ⚡ Fun fact: I love CSGO
+- ⚡ Fun fact: I love Travelling
